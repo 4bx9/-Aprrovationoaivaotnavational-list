@@ -1,6 +1,6 @@
 # list of people who APPROVE of 馬 精液 Crypter
 
-| # | Name | Logo |
+| # |  |  |
 |:-:|:-|:-:|
 | 1 | 2Pac | <img width="240" height="109" alt="2Pac" src="https://github.com/user-attachments/assets/b74b3fe7-085d-4c02-a89b-d16948eb10ef" /> |
 | 2 | Thunker | <img width="194" height="60" alt="Thunker" src="https://github.com/user-attachments/assets/bb310fc3-cd03-4375-bb9d-94188c232a94" /> |
